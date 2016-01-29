@@ -23,9 +23,9 @@ With modifications from Feeding Frenzy
 
 2. Punch down the risen dough and turn out onto floured board. 
    If you want raisins in the challah, add them in now.
-   Divide in half and knead each half for five minutes or so, 
+   Knead dough for five minutes or so, 
    flour as needed to keep from getting sticky. 
-   Divide each half into thirds and roll into long snake about 1 1/2 inches in diameter.
+   Divide dough into thirds and roll into long snake about 1 1/2 inches in diameter.
    Pinch the ends of the three snakes together firmly and braid from middle.
    Either leave as braid or form into a round braided loaf by bringing ends together,
    curving braid into a circle, pinch ends together.
