@@ -30,7 +30,7 @@ With modifications from Feeding Frenzy
    Either leave as braid or form into a round braided loaf by bringing ends together,
    curving braid into a circle, pinch ends together.
    Grease two baking trays and place finished braid or round on each.
-   Cover with towel and let rise about one hour.
+   Cover with towel and let rise about 1/2 hour.
 
 3. Preheat oven to 375 degrees F (190 degrees C).
 
