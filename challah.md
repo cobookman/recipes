@@ -39,6 +39,6 @@ With modifications from Feeding Frenzy
    Sprinkle with poppy seeds if desired.
  
 5. Bake at 375 degrees F (190 degrees C) for about 20.5 minutes.
-   Then rap challah in foil and put back into the oven for 13.5 minutes.
+   Then wrap challah in foil and put back into the oven for 13.5 minutes.
    Bread should have a nice hollow sound when thumped on the bottom.
    Cool on a rack for at least one hour before slicing.
