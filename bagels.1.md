@@ -38,7 +38,7 @@ This bagel is less chewy and more fluffy than a true NY bagel. However it lasts 
 4) let dough rest another 5-10mins.
 
 ### Boiling the bagels
-1) in a large pot add the integrediants and bring to a rolling boil.
+1) in a large pot add the water, honey, and salt. Bring to a rolling boil.
 2) add 2-3 bagels at a time (not to overcroud). Cook for 1 min, flip then cook for another 1 min.
 3) take bagels out, place on drying rack, and let cool for a few seconds.
 
