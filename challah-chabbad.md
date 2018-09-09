@@ -5,14 +5,19 @@ This recipe makes 2 challahs, and is from Chabbad of Novato.
 
 ## Ingredients 
 
-* 2 Tbl yeast
-* 1 c. warm water
-* 3 Tbl sugar
-* 1 c. Sugar
-* 1 c. Vegatable Oil
-* 4 eggs
-* 8 c. Flour (usually more) 
-* 1 Egg
+* Yeast Starter
+  * 2 Tbl yeast
+  * 1 c. warm water
+* Dry Ingredients
+  * 8 c. Flour (usually more)
+  * 3 Tbl sugar
+  * 1 c. Sugar
+* Wet Ingredients
+  * 1 c. warm water
+  * 1 c. Vegatable Oil
+  * 4 eggs
+* Egg Wash
+  * 1 Egg
 
 ## Directions
 
