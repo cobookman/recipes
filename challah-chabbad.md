@@ -6,11 +6,11 @@ This recipe makes 2 challahs, and is from Chabbad of Novato.
 ## Ingredients 
 
 * Yeast Starter
-  * 2 Tbl yeast
+  * 2 tbsp yeast
+  * 3 tbsp sugar
   * 1 c. warm water
 * Dry Ingredients
   * 8 c. Flour (usually more)
-  * 3 Tbl sugar
   * 1 c. Sugar
 * Wet Ingredients
   * 1 c. warm water
@@ -21,10 +21,10 @@ This recipe makes 2 challahs, and is from Chabbad of Novato.
 
 ## Directions
 
-1) Mix Yeast, 2Tbl Sugar, Warm Water Water together. Let it sit 10 mins until it bubbles.
+1) Mix 2 tbsp Yeast, 3 tbsp Sugar, 1c Warm Water Water. Sit 10 mins until bubbles.
 
 2) Add all dry ingrediants (1 c sugar, 8 c flour) to a bowl and form a well in the center.
-Stir in the wet ingrediants (yeast mix, 1 c oil, 4 eggs).
+Stir in the wet ingrediants (yeast mix, 1 c oil, 4 eggs, 1 c warm water).
 
 3) Knead dough until a solid ball.
 
