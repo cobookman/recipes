@@ -14,11 +14,11 @@
 * Egg Wash: 1 egg + 1 splash of water (~1 teaspon)
 
 ## Instructions
-1. Warm up 1/2 a cup of the water (Microwave 15-30sec). Pour in sugar & Yeast. Let it sit for five minutes then stir.
+1. Warm up 1/2 a cup of water (Microwave 15-30sec). Pour in sugar & Yeast. Let it sit for five minutes then stir.
 
 2. Mix flour & salt in bowl, and make a well in the center.
 
-3. Pour all wet ingredients into bowl & mix/knead for 10 minutes until smooth & elastic.. Add water as needed to get dough to be moist, firm, and stiff after kneading.
+3. Warm up 3/4 a cup of water (Microwave ~30sec). Pour all wet ingredients into bowl & mix/knead for 10 minutes until smooth & elastic.. Add water as needed to get dough to be moist, firm, and stiff after kneading.
 
 4. Lightly brush a large bowl with a oil. Turn dough to coat and cover with damp towel.
 
