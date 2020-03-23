@@ -25,6 +25,6 @@
 
 3. Beat eggs into milk.
 
-4. Mix dry ingredients, then add the wet ingredients (Milk, butter, egg) to dry (flour, salt, sugar, baking powder).
+4. Mix dry ingredients (flour, salt, sugar, baking powder), then add the wet ingredients (Milk, butter, egg) to dry.
 
 5. For each pancake - Lightly butter hot skillet, ladle batter into center of skillet, then flip pancake once bubble rises ~2mins. Buttering in-between pancakes might not be necessary.
