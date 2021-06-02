@@ -1,3 +1,5 @@
+# Falafel
+
 Original recipe: https://www.simplyrecipes.com/recipes/air_fryer_falafel/
 
 Makes: ~25-30 falafel discs
