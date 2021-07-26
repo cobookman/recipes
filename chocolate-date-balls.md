@@ -11,7 +11,7 @@ Adapted from: https://www.cottercrunch.com/dark-chocolate-chewy-energy-bites-ble
 * ~2 tspn of kosher salt
 
 ## Directions
-* Add ingredients to blender
+* Add chocolate, almonds, pitted dates to blender
 * Blend until well mixed. If using a vitamix leave on high for a half a minute with tamper. Chocolate will eventually melt and it'll come together.
 * Roll into 18 small balls (tad bigger than size of quarter), and place onto wax or parchment paper.
 * Mix cocoa powder and salt into ramikin or small bowl, and coat each ball by rolling it around in mixture. Put back on wax or parchment paper.
