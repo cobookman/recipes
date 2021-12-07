@@ -22,7 +22,7 @@ Inspiration: https://www.inspiredtaste.net/24412/cocoa-brownies-recipe/
   Stir in the vanilla with a spoon. Then add eggs one at a time while stirring vigorously after each egg is added.
 * After batter looks thick and well blended, sift in flour and stir until fully incorporated. 
 * Continue beating with wooden spoon for 40-50 strokes. Keep beating until the batter pulls away from the sides of the bow.
-* Spread evenly into the 8x8 square pan, and bake for **25 to 25 minutes**.
+* Spread evenly into the 8x8 square pan, and bake for **20 to 25 minutes**.
   Keep baking until a toothpick can be incerted and come out with a few moist crubms.
 * Cool completly then remove from pan and cut into ~16 squares.
 
