@@ -1,4 +1,4 @@
-# Creamy Mushroom Pasta
+# Creamy Mushroom Fettuccine
 
 ## Ingredients
 
