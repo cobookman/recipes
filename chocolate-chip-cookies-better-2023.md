@@ -3,6 +3,7 @@
 Found this recipe in 2023, superior to all past Chocolate Chip cookie recipes found prior.
 
 ## Ingredients
+* 2 1/4 cups (280g) of all purpose flour
 * 1 tsp baking soda
 * 1 1/2 tsp cornstarch
 * 1/2 tsp salt (if kosher salt make it a heaping 1/2 tsp).
